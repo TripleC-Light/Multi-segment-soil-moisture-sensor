@@ -25,7 +25,7 @@ My Blog: https://reurl.cc/R4e82r
 
 
 ## About Me
- - My Blog : [愛德華空想科學誌](https://triplec-light.000webhostapp.com)
+ - My Blog : [愛德華空想科學誌]
  - E-mail : TripleC.Light@gmail.com
  - LinkedIn : [Edward Chou](https://www.linkedin.com/in/edward-chou-42058912a)
  - Buy Me A Coffee : [Buy Me A Coffee](https://www.buymeacoffee.com/YrFKPo2)
